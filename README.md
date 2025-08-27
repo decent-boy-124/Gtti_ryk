@@ -62,7 +62,7 @@ If you’d like to improve the website:
 ## 📞 Contact
 
 📧 Email: [info@gttiryk.edu.pk](mailto:info@gttiryk.edu.pk)
-☎️ Phone: +92-XXX-XXXXXXX
+☎️ Phone: +92-370-646299/
 🌐 Website: [www.gttiryk.edu.pk](http://www.gttiryk.edu.pk)
 
 ---
